@@ -141,4 +141,6 @@ https://github.com/Saksham-Gupta-24
 ## Contact :
 If you encounter any challenges or have any feedback, feel free to reach out to me for assistance.
 
-I can be contacted at https://www.linkedin.com/in/saksham-gupta24/ or mail on guptasaksham938@gmail.com  I'm available to support you and resolve any issues you may encounter.
+I can be contacted at https://www.linkedin.com/in/saksham-gupta24/ or mail on guptasaksham938@gmail.com 
+
+I'm available to support you and resolve any issues you may encounter.
